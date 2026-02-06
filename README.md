@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DURJ771009HGTRMR04
+DURJ771009HGTRMR04
